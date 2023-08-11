@@ -1,4 +1,4 @@
-# One-Punch Man (Sub-Indo)
+# One-Punch Man (Sub-Indo) By Razor
 
 * Chapter 188 : https://cubari.moe/read/imgur/MIQFa5A/1/1/
 * Chapter 187 : https://cubari.moe/read/imgur/Wolm7Sd/1/1/
